@@ -153,3 +153,4 @@
 |北京|[北京数码视讯科技股份有限公司](http://www.sumavision.com/)|2011年4月|996亲历,管理规定，大小周|[看准网](https://www.kanzhun.com/pl474513.html)
 |福州|[中富通集团股份有限公司](http://www.zftii.com/)|2019年4月|宣扬马云996 随意要求员工加班|[微信截图](img/zftjt.jpg)
 |北京|[北京声智科技有限公司](http://www.soundai.com/)|2019年4月|996|[看准网：包括 HR 全员996](https://www.kanzhun.com/gsr5680797tl526.html?ka=review-label1)
+|北京|[北京声智科技有限公司](https://www.lanjinrong.com/home)|2019年4月|996|[图片1](https://ws1.sinaimg.cn/large/e6e394f5ly1g23b2996k8j20u01hcq78.jpg)  [图片2](https://ws1.sinaimg.cn/large/e6e394f5ly1g23b45gccfj20u01hctc1.jpg)   [Boss招聘信息](https://www.zhipin.com/job_detail/205cd4c301ce17711XV52NS4EFI~.html?ka=search_list_33)
