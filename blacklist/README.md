@@ -153,3 +153,4 @@
 |北京|[北京数码视讯科技股份有限公司](http://www.sumavision.com/)|2011年4月|996亲历,管理规定，大小周|[看准网](https://www.kanzhun.com/pl474513.html)
 |福州|[中富通集团股份有限公司](http://www.zftii.com/)|2019年4月|宣扬马云996 随意要求员工加班|[微信截图](img/zftjt.jpg)
 |北京|[北京声智科技有限公司](http://www.soundai.com/)|2019年4月|996|[看准网：包括 HR 全员996](https://www.kanzhun.com/gsr5680797tl526.html?ka=review-label1)
+|北京|[北京巅峰同道科技有限公司](https://www.lanjinrong.com/home)|2019年4月|996|[图片1](https://ws1.sinaimg.cn/large/e6e394f5ly1g23b2996k8j20u01hcq78.jpg)  [图片2](https://ws1.sinaimg.cn/large/e6e394f5ly1g23b45gccfj20u01hctc1.jpg)   [Boss招聘信息](https://www.zhipin.com/job_detail/205cd4c301ce17711XV52NS4EFI~.html?ka=search_list_33)  各种卸磨杀驴的做法，开除各种元老，项目做完等你没用了就把你开除，开除了赔偿不是N+1，就给一个月爱要不要，人事装傻说不知道劳动法的标准。工资说的税后，但是是要逃税，来的时候根本没有提逃税。这个证据不知道怎么发，就不发了。
